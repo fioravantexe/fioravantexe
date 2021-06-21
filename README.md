@@ -3,7 +3,7 @@
 
 - I don't think that anybody should try to reach out to me at this point, but if you wish to do so, email me at pedrofgcarvalho@gmail.com, I will answer you as soon as I can
 
-May the force be with you, bye :)
+May the force be with you, farewell :)
 
 <!---
 fioravantexe/fioravantexe is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
